@@ -1,4 +1,4 @@
-# 
+# top NFT Sniper for nft arbitrage bot | profit-calculator & mint-detection offers the most advanced nft arbitrage bot, with profit-calculator and mint-detection. Ideal for
 
 
 
